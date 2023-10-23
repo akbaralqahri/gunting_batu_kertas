@@ -1,0 +1,1 @@
+# gunting_batu_kertas
